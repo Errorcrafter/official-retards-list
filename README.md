@@ -11,7 +11,3 @@
 
 >**natasha**
 - haram skidder cat is angry at you 😡😡😡. #BLM #ACAB (Also a kotlin lover smh)
-
->**chocopie**
-- braindead retard
-
